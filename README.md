@@ -138,4 +138,4 @@ MIT License – Feel free to use and modify.
 
 ## 🙋‍♂️ Questions?
 
-Open an issue or reach me via [LinkedIn](https://linkedin.com/in/your-profile)
+Open an issue or reach me via [LinkedIn](https://www.linkedin.com/in/amisha-kumari-87a510312/)
